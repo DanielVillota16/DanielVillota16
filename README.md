@@ -1,4 +1,4 @@
-# Jesus Daniel Villota
+# Resume
 
 ## Contact Information
 - Email: danielvillota1016@gmail.com
